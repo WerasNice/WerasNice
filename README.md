@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @WerasNice
+- 👀 I’m interested in nothing
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on everything
+- 📫 How to reach me (dont reach)
